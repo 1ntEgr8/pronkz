@@ -1,2 +1,2 @@
 # pronkz
-for some good ol pranking hehe
+for some good ol fun hehe
